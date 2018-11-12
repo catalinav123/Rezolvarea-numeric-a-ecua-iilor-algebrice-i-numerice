@@ -1,0 +1,1 @@
+# Rezolvarea-numeric-a-ecua-iilor-algebrice-i-numerice
